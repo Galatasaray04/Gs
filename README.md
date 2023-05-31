@@ -1,0 +1,2 @@
+# Gs
+Mavi tik 
